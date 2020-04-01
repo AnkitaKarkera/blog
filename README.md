@@ -10,4 +10,4 @@ According to an assessment done by CIR** (Cosmetic Ingredient Review), botanical
 
 [**CIR: Safety Assessment of Cocos nucifera (Coconut)-Derived Ingredients as Used in Cosmetics][https://www.cir-safety.org/sites/default/files/Coconut.pdf]
 
-[*Bella Thorne's All-Natural, DIY Nighttime Skincare Routine | Go To Bed With Me | Harper's BAZAAR interview[https://www.youtube.com/watch?v=lTqQLTvJLAQ]
+[*Bella Thorne's All-Natural, DIY Nighttime Skincare Routine | Go To Bed With Me | Harper's BAZAAR interview][https://www.youtube.com/watch?v=lTqQLTvJLAQ]
